@@ -20,7 +20,7 @@ I'm a passionate Artificial Intelligence and Computer Science graduate with a st
 
 I'm excited to collaborate and contribute to interesting projects. Feel free to reach out if you'd like to work together or if you have any questions.
 
-- 📧 Email: your.email@example.com
+- 📧 Email: rxhul14@gmail.com
 - 🌐 LinkedIn: [Rahul Singh](www.linkedin.com/in/rahul-singh-46a98721a)
 
 Let's make great things together! 🚀
